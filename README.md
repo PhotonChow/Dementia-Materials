@@ -1,3 +1,3 @@
 # Dementia 
-# Department of Social Work and Social Administration
-## Creater: Mr. Photon Chow :bowtie
+## Department of Social Work and Social Administration
+## Creater: :bowtie: Mr. Photon Chow 
